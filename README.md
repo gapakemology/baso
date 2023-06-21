@@ -1,0 +1,2 @@
+# baso
+cara membuat
